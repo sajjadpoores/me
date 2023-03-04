@@ -1,6 +1,6 @@
 # MY GOALS
 
-## introduction
+## Introduction
 Here, I'm going to talk about my goals, in fact I think my goals are in several levels, there are some main goals which are very general and other goals are sub-goals of these goals.
 
 ## Main Goals
