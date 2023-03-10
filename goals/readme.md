@@ -26,5 +26,8 @@ Feeling of peace
     ├── Doing a personal project
     ├── Party
     ├── Seeing friends
-    └── Watching series and movies
+    ├── Watching series and movies
+    ├── Playing games
+    └── Traveling
+ 
 ```
