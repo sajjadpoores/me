@@ -41,34 +41,34 @@ This is my ultimate goal. I believe that achieving this goal will bring me true 
 
 Having more income will help me achieve my goal of feeling at peace. Here are some sub-goals that will help me increase my income:
 
-#### 1️⃣.1️⃣.1️⃣ Going to work
-#### 1️⃣.1️⃣.2️⃣ Doing a personal project
-#### 1️⃣.1️⃣.3️⃣ Doing freelancing projects
-#### 1️⃣.1️⃣.4️⃣ Personal development
-#### 1️⃣.1️⃣.5️⃣ Technical skills development
+#### 1️⃣.1️⃣.1️⃣ Going to work 🏢
+#### 1️⃣.1️⃣.2️⃣ Doing a personal project 💻
+#### 1️⃣.1️⃣.3️⃣ Doing freelancing projects 💼
+#### 1️⃣.1️⃣.4️⃣ Personal development 📚
+#### 1️⃣.1️⃣.5️⃣ Technical skills development 🛠️
 
 ### 1️⃣.2️⃣ Personal development
 
 Investing in my personal development will help me become a better version of myself. Here are some sub-goals that will help me achieve this:
 
-#### 1️⃣.2️⃣.1️⃣ Going to therapy
-#### 1️⃣.2️⃣.2️⃣ Studying personal development content
-#### 1️⃣.2️⃣.3️⃣ Watching personal development content
-#### 1️⃣.2️⃣.4️⃣ Listening to podcasts
-#### 1️⃣.2️⃣.5️⃣ Meditation
-#### 1️⃣.2️⃣.6️⃣ Exercise
+#### 1️⃣.2️⃣.1️⃣ Going to therapy 🧘
+#### 1️⃣.2️⃣.2️⃣ Studying personal development content 📖
+#### 1️⃣.2️⃣.3️⃣ Watching personal development content 📺
+#### 1️⃣.2️⃣.4️⃣ Listening to podcasts 🎧
+#### 1️⃣.2️⃣.5️⃣ Meditation 🧘‍♂️
+#### 1️⃣.2️⃣.6️⃣ Exercise 🏋️‍♀️
 
 ### 1️⃣.3️⃣ Enjoy life and entertainment
 
 Finally, I believe that it is important to enjoy life and have fun. Here are some sub-goals that will help me achieve this:
 
-#### 1️⃣.3️⃣.1️⃣ Exercise
-#### 1️⃣.3️⃣.2️⃣ Doing a personal project
-#### 1️⃣.3️⃣.3️⃣ Party
-#### 1️⃣.3️⃣.4️⃣ Seeing friends
-#### 1️⃣.3️⃣.5️⃣ Watching series and movies
-#### 1️⃣.3️⃣.6️⃣ Playing games
-#### 1️⃣.3️⃣.7️⃣ Traveling
+#### 1️⃣.3️⃣.1️⃣ Exercise 🏋️‍♂️
+#### 1️⃣.3️⃣.2️⃣ Doing a personal project 💻
+#### 1️⃣.3️⃣.3️⃣ Party 🎉
+#### 1️⃣.3️⃣.4️⃣ Seeing friends 👥
+#### 1️⃣.3️⃣.5️⃣ Watching series and movies 🎬
+#### 1️⃣.3️⃣.6️⃣ Playing games 🎮
+#### 1️⃣.3️⃣.7️⃣ Traveling 🌍
 
 
 ## 🏆 Prioritization
