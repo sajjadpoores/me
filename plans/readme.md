@@ -1,6 +1,6 @@
 # My Plans
 
-Based on my goals (/goals/readme.md), I have prioritized the following goals:
+Based on my goals [Link to Goals Readme](./goals/readme.md), I have prioritized the following goals:
 
 ## 🏆 Prioritization
 
