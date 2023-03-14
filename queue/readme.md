@@ -9,4 +9,4 @@ Here is a queue of what I'm going todo next.
 
 
 ## DONE:
-- ~~Log my yesterday's times ~~
+- <strike>Log my yesterday's times<strike>
